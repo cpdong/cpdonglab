@@ -1,1 +1,1 @@
-# Lab page coming soon
+# lab page coming soon
